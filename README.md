@@ -2,7 +2,7 @@
 
 ###
 
-<img data-importer="image" align="right" height="180" src="https://www.gifcen.com/wp-content/uploads/2022/09/anime-gif-2.gif"  />
+<img data-importer="image" align="right" height="165" src="https://www.gifcen.com/wp-content/uploads/2022/09/anime-gif-2.gif"  />
 
 ###
 
